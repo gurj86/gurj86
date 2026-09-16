@@ -2,7 +2,7 @@
 
 **Financial-services remediation | Outcomes testing | Consumer Duty | AI-assisted review**
 
-I work in financial-services remediation with Square 4 Partners, have outcomes testing experience and hold a Level 4 Diploma in Financial Advice.
+I work in financial-services remediation, have outcomes testing experience and hold a Level 4 Diploma in Financial Advice.
 
 I’m interested in how AI can support careful case investigation: organising evidence, developing better questions, challenging unsupported conclusions and producing clear governance reporting. Customer outcomes and accountable human judgement remain central.
 
